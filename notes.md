@@ -8,7 +8,7 @@
 
 	2. Matching feature: 1 Done
 
-	3. Matching headings: 1 2 3 4 5 6 7 8 Done
+	3. Matching headings: 1 2 3 4 5 6 7 8 9 10 Done
 
 ** Chú ý **
 
