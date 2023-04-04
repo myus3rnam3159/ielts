@@ -1,3 +1,5 @@
+Thi thử ielts: https://www.idp.com/vietnam/ielts/computer-trial/?CountryId=227&utm_source=google&utm_medium=cpc&utm_campaign=VN_GG_S.SEM_X.12137364164_Y.114212342542_Z.625928109532&gclid=Cj0KCQjwla-hBhD7ARIsAM9tQKvRrPojnZtAwsgMZ7MS66-ycCveYVs1QquzwyoqsVdV1dX0jAsTPa4aAufZEALw_wcB
+
 *** READING ***
 
 * Chú ý notion: https://oxidized-girdle-bcf.notion.site/6-0-READING-2a4b69fe49a745d69e6ecc5e4e64a035
@@ -34,19 +36,33 @@ Cảm giác câu nào dễ làm trước - lật qua lật lại cũng được.
 *** WRITING ***
 * Outline cho agreee || disagree:https://docs.google.com/document/d/1U1RxnlaMcaLyk0hSrdoHMRt9Rub5ICd-NNBTNyRy41Q/edit?fbclid=IwAR2wigmOLEPYa6obsnvRDEqB7c9abbVf4HIx81os7ts2bgfMc03I8L4Hby8#heading=h.au8vwkee795d 
 
-* Outline tổng hợp: https://docs.google.com/document/d/1U1RxnlaMcaLyk0hSrdoHMRt9Rub5ICd-NNBTNyRy41Q/edit?usp=drivesdk
+* Outline tổng hợp: 
 
-* Outline cho ad > dis: https://photos.app.goo.gl/irbkm5uLYudDu2tr5
+https://docs.google.com/document/d/1U1RxnlaMcaLyk0hSrdoHMRt9Rub5ICd-NNBTNyRy41Q/edit?usp=drivesdk
 
-* Outline cho dis > ad: https://photos.app.goo.gl/K6ZhsmiAKo3sjYX86
+* Outline cho ad > dis: 
 
-* Outline cho advantages and disadvantages: https://photos.app.goo.gl/MtdEd8Am64M8zh3EA
+https://photos.app.goo.gl/irbkm5uLYudDu2tr5
 
-* Outline cho cause + solutions: https://photos.app.goo.gl/YjHNf2kavF1XT33M8
+* Outline cho dis > ad: 
 
-* Các cách connect sentences: https://docs.google.com/document/d/1w_jj5UPvj8vbiKRiNXyzw18547NvtHMNTo2smVO9Dek/edit?usp=sharing
+https://photos.app.goo.gl/K6ZhsmiAKo3sjYX86
 
-* Chú ý 1: https://docs.google.com/document/d/1QlIQXaoHin8mnXpkKWfdv0nUUZVXguE6Yka__DaAgbA/edit?fbclid=IwAR3Nf8OvwFgD6_2cCDWgpWYdjl5gsajHvnCTF5dtE2KYH_pA_gE_hehqAxA#
+* Outline cho advantages and disadvantages: 
+
+https://photos.app.goo.gl/MtdEd8Am64M8zh3EA
+
+* Outline cho cause + solutions: 
+
+https://photos.app.goo.gl/YjHNf2kavF1XT33M8
+
+* Các cách connect sentences: 
+
+https://docs.google.com/document/d/1w_jj5UPvj8vbiKRiNXyzw18547NvtHMNTo2smVO9Dek/edit?usp=sharing
+
+* Chú ý 1: 
+
+https://docs.google.com/document/d/1QlIQXaoHin8mnXpkKWfdv0nUUZVXguE6Yka__DaAgbA/edit?fbclid=IwAR3Nf8OvwFgD6_2cCDWgpWYdjl5gsajHvnCTF5dtE2KYH_pA_gE_hehqAxA#
 
 ** Công thức viết đoạn văn **
 
@@ -54,6 +70,26 @@ Cảm giác câu nào dễ làm trước - lật qua lật lại cũng được.
 	2. Với mỗi ý chính có 1 lời giải thích, 1 effect, 1 example. Với mỗi bộ 3 kia dùng các cách nối giống nhưng khác từ.
 
 ** step **
+[SUMMARY: WRITING 7- LINEARTHINKING IN TASK 1]
+
+Để xử lý thông tin trong Task 1 một cách hiệu quả, thay vì căn cứ vào hình dạng (Pie, Line, Table,...), chúng ta sẽ xác định Purposes của biểu đồ nhé.
+
+Căn bản, bất kì hình nào thì Purpose cũng sẽ xoay quanh 2 mục đích chính:
+
+    Trend (khi có 2 hoặc nhiều hơn 2 mốc thời gian)
+    Compare:
+    Compare 2 đối tượng A vs B
+    Compare nhiều đối tượng XYZW
+
+Hôm nay thì mình sẽ tìm hiểu Combo đầu tiên: 1T1C - Graph with trend.
+
+Sau khi xác định xong Purposes thì ta sẽ tìm đặc điểm cho phần Overview cũng như nội dung cho từng Body.
+
+Phần này thì thực hành nhiều sẽ dần quen và chọn features ngày càng (cố gắng làm bài vì chọn đúng đẩy TA và CC lên cao sẽ rất có lợi cho điểm toàn phần hen).
+
+** outline + bt: 
+
+https://docs.google.com/document/d/1kkErFPhzIENvuIQrfq58eX5ByW8UzrPs/edit?usp=sharing&ouid=111134548910658747669&rtpof=true&sd=true
 
 [SUMMARY WRITING 3: Approach to Task 2 - Outline for Problems | Solutions]
 
@@ -90,7 +126,9 @@ Check lại lỗi trong bài, đặc biệt là các lỗi:
     Cách dùng noun
     Liên kết giữa các câu
 
-File làm bài tập: https://docs.google.com/document/d/12tWZb1A9RL6bNzsHlDBz0EDY84vufiPg0dXcg8Edf5s/edit?usp=sharing 
+File làm bài tập: 
+
+https://docs.google.com/document/d/12tWZb1A9RL6bNzsHlDBz0EDY84vufiPg0dXcg8Edf5s/edit?usp=sharing 
 
 *** SPEAKING ***
 
