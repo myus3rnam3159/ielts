@@ -2,15 +2,15 @@ Thi thử ielts: https://www.idp.com/vietnam/ielts/computer-trial/?CountryId=227
 
 *** READING ***
 
-* Chú ý notion: https://oxidized-girdle-bcf.notion.site/6-0-READING-2a4b69fe49a745d69e6ecc5e4e64a035
+* Chú ý notion: https://crawling-place-724.notion.site/IELTS-Reading-with-Linearthinking-Strategies-by-DOL-English-4466124226974a4581d720a285f3f4ec
 
 * Bài tập reading trong notion
 
 	1. TFNG Done
 
-	2. Matching feature: 1 Done
+	2. Matching feature: Done
 
-	3. Matching headings: 1 2 3 4 5 6 7 8 9 10 Done
+	3. Matching headings: 1 2 3 Done
 
 ** Chú ý **
 
@@ -90,6 +90,8 @@ Phần này thì thực hành nhiều sẽ dần quen và chọn features ngày 
 ** outline + bt: 
 
 https://docs.google.com/document/d/1kkErFPhzIENvuIQrfq58eX5ByW8UzrPs/edit?usp=sharing&ouid=111134548910658747669&rtpof=true&sd=true
+
+** Nối câu: https://photos.app.goo.gl/wdn796QDWAKozVMu7 
 
 [SUMMARY WRITING 3: Approach to Task 2 - Outline for Problems | Solutions]
 
