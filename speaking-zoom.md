@@ -23,9 +23,13 @@ https://docs.google.com/document/d/1DcrHFDnSTLdzL_iMgC4ONocVBJTBghaw5rU_aRRvtZM/
 soạn câu trả lời cho bảng 3 docs 2
 
 docs3: https://docs.google.com/document/d/1DUAA0eYMsAOwXcFz3v6fewzGyC_ApAHijEeAvW2K7_Q/edit?usp=sharing
+
 soạn câu trả lời cho docs 3
 
 exercise:
-soạn câu trả lời cho docs2 và ghi âm gửi cô qua facebook dol https://www.facebook.com/anh.do.dol/
+
+soạn câu trả lời cho docs2 và ghi âm gửi cô qua
+ 
+facebook dol https://www.facebook.com/anh.do.dol/
 
 speaking part1: trả lời mỗi câu hỏi 3 đến 4 câu

@@ -38,7 +38,7 @@ Cảm giác câu nào dễ làm trước - lật qua lật lại cũng được.
 
 * Outline tổng hợp: 
 
-https://docs.google.com/document/d/1U1RxnlaMcaLyk0hSrdoHMRt9Rub5ICd-NNBTNyRy41Q/edit?usp=drivesdk
+https://docs.google.com/document/d/1zdfOxLv67PdmN-QM7dH6cdg-3xT_9UaXpe0eFYKBloM/edit?usp=sharing
 
 * Outline cho ad > dis: 
 
