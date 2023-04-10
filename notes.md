@@ -34,7 +34,37 @@ Cảm giác câu nào dễ làm trước - lật qua lật lại cũng được.
 * Gafill: Thường là đoạn chưa đọc. Khi tìm được từ khóa phải phải bôi đen và đọc hết câu thành tiếng. Coi chừng từ which, the, ... để tách đổi tượng. Phải đọc thêm 2 -3 câu nữa.
 
 *** WRITING ***
-* Outline cho agreee || disagree:https://docs.google.com/document/d/1U1RxnlaMcaLyk0hSrdoHMRt9Rub5ICd-NNBTNyRy41Q/edit?fbclid=IwAR2wigmOLEPYa6obsnvRDEqB7c9abbVf4HIx81os7ts2bgfMc03I8L4Hby8#heading=h.au8vwkee795d 
+
+[Extra Writing: Task 1: Map & Process]
+
+Tuần này mình sẽ có buổi Extra về hai dạng bài này của Task 1 nhé cả lớp.
+
+Mọi người down tài liệu này về xem qua trước buổi học nhé.
+
+Map:
+
+https://docs.google.com/document/d/1UOmAodeCBV3vMWcz9hIWXz672Q-Zw7E1-lDOkdU9KhY/edit?fbclid=IwAR08Z9kVgniIlRPeV1wkQto0RMGTU-vTUOrKdB41iAfpcvT-GSlF-fxlyi0#heading=h.fqddjuq98gml
+
+Process:
+
+https://docs.google.com/document/d/1xgb9gh7BBKOW6xji9GbGk-qqqsZeTph16jm7Tsjbdgc/edit?fbclid=IwAR2b0ju6kTPusn1-aFoZE9rGQWRHUGI5kf2TnvgpUsJ0KLFtc45y9eLI498#heading=h.cfeniodeosia
+
+Thời gian: 9h- tối thứ 6- 14/04 (nhớ cài reminder để nhớ nha mn huhu)
+
+
+Topic: Zoom 3 DOL's Personal Meeting Room
+
+Join Zoom Meeting
+
+https://us02web.zoom.us/j/3543646358?pwd=eS8vSzFLZkVmWGhsK2VJTEh2UmhFQT09
+
+Meeting ID: 354 364 6358
+
+Passcode: 633884
+
+* Outline cho agreee || disagree:
+
+https://docs.google.com/document/d/1U1RxnlaMcaLyk0hSrdoHMRt9Rub5ICd-NNBTNyRy41Q/edit?fbclid=IwAR2wigmOLEPYa6obsnvRDEqB7c9abbVf4HIx81os7ts2bgfMc03I8L4Hby8#heading=h.au8vwkee795d 
 
 * Outline tổng hợp: 
 
