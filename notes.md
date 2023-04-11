@@ -35,6 +35,15 @@ Cảm giác câu nào dễ làm trước - lật qua lật lại cũng được.
 
 *** WRITING ***
 
+LÝ THUYẾT CHO LANGUAGE OF COMPARISION IN BOOK: PAGE
+
+141
+143
+147
+150
+
+155- 162 - 163
+
 [Extra Writing: Task 1: Map & Process]
 
 Tuần này mình sẽ có buổi Extra về hai dạng bài này của Task 1 nhé cả lớp.
