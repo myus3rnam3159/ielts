@@ -17,11 +17,11 @@ Mọi người down tài liệu này về xem qua trước buổi học nhé.
 
 Map:
 
-https://docs.google.com/document/d/1UOmAodeCBV3vMWcz9hIWXz672Q-Zw7E1-lDOkdU9KhY/edit?fbclid=IwAR08Z9kVgniIlRPeV1wkQto0RMGTU-vTUOrKdB41iAfpcvT-GSlF-fxlyi0#heading=h.fqddjuq98gml
+https://docs.google.com/document/d/1UOmAodeCBV3vMWcz9hIWXz672Q-Zw7E1-lDOkdU9KhY/edit?usp=sharing
 
 Process:
 
-https://docs.google.com/document/d/1xgb9gh7BBKOW6xji9GbGk-qqqsZeTph16jm7Tsjbdgc/edit?fbclid=IwAR2b0ju6kTPusn1-aFoZE9rGQWRHUGI5kf2TnvgpUsJ0KLFtc45y9eLI498#heading=h.cfeniodeosia
+https://docs.google.com/document/d/1xgb9gh7BBKOW6xji9GbGk-qqqsZeTph16jm7Tsjbdgc/edit?usp=sharing
 
 Thời gian: 9h- tối thứ 6- 14/04 (nhớ cài reminder để nhớ nha mn huhu)
 
@@ -38,7 +38,7 @@ Passcode: 633884
 
 * Outline cho agreee || disagree:
 
-https://docs.google.com/document/d/1U1RxnlaMcaLyk0hSrdoHMRt9Rub5ICd-NNBTNyRy41Q/edit?fbclid=IwAR2wigmOLEPYa6obsnvRDEqB7c9abbVf4HIx81os7ts2bgfMc03I8L4Hby8#heading=h.au8vwkee795d 
+https://docs.google.com/document/d/1U1RxnlaMcaLyk0hSrdoHMRt9Rub5ICd-NNBTNyRy41Q/edit?usp=sharing 
 
 * Outline tổng hợp: 
 
