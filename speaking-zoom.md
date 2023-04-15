@@ -9,6 +9,10 @@
 Bài mẫu speaking: https://tuhocielts.dolenglish.vn/category/tong-hop-bai-mau-ielts-speaking-part-2-sample?page=2
  
  Next: https://tuhocielts.dolenglish.vn/blog/describe-a-person-who-you-think-wears-unusual-clothes-bai-mau-sample-ielts-speaking-part-2
+ 
+docs5: https://docs.google.com/document/d/1_Jux4LIYrZd8G5Kkmqgk_GKFu_7Y5mO9Ex3VpqMtdEI/edit?usp=sharing
+
+trả lời các câu hỏi docs 5
 
 docs4: https://docs.google.com/document/d/1xkKnGQ3z-1cLoxCj9OEygRTpMdO_eSV_oJeAncQ57-w/edit?usp=sharing
 
