@@ -6,6 +6,15 @@
 
 *** Exercises ***
 
+idiomatic:
+
+https://docs.google.com/document/d/1sORuprfsp51i_eOxDl1zBOteRQRSqXD7KHgnYunZdps/edit?usp=drivesdk
+
+https://docs.google.com/document/d/1_Jux4LIYrZd8G5Kkmqgk_GKFu_7Y5mO9Ex3VpqMtdEI/edit?usp=drivesdk
+
+=> trả lời câu hỏi
+
+
 Bài mẫu speaking: https://tuhocielts.dolenglish.vn/category/tong-hop-bai-mau-ielts-speaking-part-2-sample?page=2
  
  Next: https://tuhocielts.dolenglish.vn/blog/describe-a-person-who-you-think-wears-unusual-clothes-bai-mau-sample-ielts-speaking-part-2
