@@ -2,6 +2,26 @@
 
 Theo đề cương: https://www.ieltsbro.com/ (tìm hiểu kĩ thêm vì bằng tiếng Trung)
 
+[SUMMARY: SPEAKING 2- HOW TO LEARN VERB PATTERNS AND COLLOCATIONS EFFECTIVELY]
+Hi cả nhà,
+Thông qua bài học vừa rồi, hy vọng mọi người đã nắm được:
+
+    Các nhóm verb pattern chính cùng với các practice
+    Cách chọn lọc và enrich topic-related vocab.
+
+Đối với verb pattern, cô có tổng hợp lại trong link sau (có kèm ví dụ cho từng cụm để bạn nào mình chưa nắm cách dùng của cụm có thể tham khảo thêm nhen).
+https://docs.google.com/spreadsheets/d/1M-OoEjps3Xuwt4-PjehdDoCjppfCvqDS_75Y-TUMtgg/edit#gid=416062133
+Mọi người plan thời gian cụ thể để luyện tập từng nội dung nhé.
+Đây là plan cô suggest nì:
+
+    Friday (14/04): Luyện tập verb pattern các nhóm
+    Saturday (15/04): Học vocab và ráp vào practice cho nhóm Subtopic: Subjects (chọn môn History) - trong handout cô phát, ở cuối mỗi subtopic có câu hỏi gợi ý cho cả nhà luyện tập nhen.
+    Sunday (16/04): Học vocab và ráp vào practice cho nhóm Subtopic: Rules (chọn Wearing uniform).
+    Monday (17/04): Học vocab và ráp vào practice cho nhóm Subtopic: Methods of studying (chọn Online learning).
+
+Ngoài ra, dành thời gian mỗi ngày làm Daily Listening nhen cả nhà. Để m
+
+
 [SUMMARY: SPEAKING 1]
 
 Marking criteria & How to speak a correct sentence-
