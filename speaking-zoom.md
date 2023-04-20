@@ -15,9 +15,9 @@ https://docs.google.com/document/d/1_Jux4LIYrZd8G5Kkmqgk_GKFu_7Y5mO9Ex3VpqMtdEI/
 => trả lời câu hỏi
 
 
-Bài mẫu speaking: https://tuhocielts.dolenglish.vn/category/tong-hop-bai-mau-ielts-speaking-part-2-sample?page=2
+Bài mẫu speaking: https://tuhocielts.dolenglish.vn/category/tong-hop-bai-mau-ielts-speaking-part-2-sample?page=3
  
- Next: https://tuhocielts.dolenglish.vn/blog/describe-a-person-who-you-think-wears-unusual-clothes-bai-mau-sample-ielts-speaking-part-2
+ Next: https://tuhocielts.dolenglish.vn/blog/describe-a-piece-of-important-news-you-got-through-a-text-message-bai-mau-sample-ielts-speaking-part-2
  
 docs5: https://docs.google.com/document/d/1_Jux4LIYrZd8G5Kkmqgk_GKFu_7Y5mO9Ex3VpqMtdEI/edit?usp=sharing
 

@@ -10,7 +10,9 @@ Thông qua bài học vừa rồi, hy vọng mọi người đã nắm được:
     Cách chọn lọc và enrich topic-related vocab.
 
 Đối với verb pattern, cô có tổng hợp lại trong link sau (có kèm ví dụ cho từng cụm để bạn nào mình chưa nắm cách dùng của cụm có thể tham khảo thêm nhen).
+
 https://docs.google.com/spreadsheets/d/1M-OoEjps3Xuwt4-PjehdDoCjppfCvqDS_75Y-TUMtgg/edit#gid=416062133
+
 Mọi người plan thời gian cụ thể để luyện tập từng nội dung nhé.
 Đây là plan cô suggest nì:
 
