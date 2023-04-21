@@ -8,9 +8,9 @@
 
 idiomatic:
 
-https://docs.google.com/document/d/1sORuprfsp51i_eOxDl1zBOteRQRSqXD7KHgnYunZdps/edit?usp=drivesdk
+https://docs.google.com/document/d/1PLKfJU-8ZX_O66X7k-NfAjbK-Re5LUtyZB3iXfypofQ/edit?usp=sharing
 
-https://docs.google.com/document/d/1_Jux4LIYrZd8G5Kkmqgk_GKFu_7Y5mO9Ex3VpqMtdEI/edit?usp=drivesdk
+https://docs.google.com/document/d/13XA0VgnxD8KO8DKhlSUNqnFCXBhgq9aeKXNggF9vwB4/edit?usp=sharing
 
 => trả lời câu hỏi
 
