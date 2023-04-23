@@ -16,7 +16,7 @@ Mọi người down tài liệu này về xem qua trước buổi học nhé.
 
 Map:
 
-https://docs.google.com/document/d/1UOmAodeCBV3vMWcz9hIWXz672Q-Zw7E1-lDOkdU9KhY/edit?usp=sharing
+https://docs.google.com/document/d/1dCI9m4iqublciX5WEuLg1638QP2SXIYHQW9P6eP_olY/edit?usp=sharing
 
 Process:
 

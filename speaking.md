@@ -1,6 +1,6 @@
 *** Part 2 *** 
 
-Describe person: https://docs.google.com/document/d/1ZRBEREK7N4VEWL4R6AfCNWDdm7RmIMkEzHZD_iWrN4g/edit?usp=sharing
+Describe person and place: https://docs.google.com/document/d/1ZRBEREK7N4VEWL4R6AfCNWDdm7RmIMkEzHZD_iWrN4g/edit?usp=sharing
 
 *** SPEAKING ***
 
