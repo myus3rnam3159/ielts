@@ -22,18 +22,8 @@ Process:
 
 https://docs.google.com/document/d/1xgb9gh7BBKOW6xji9GbGk-qqqsZeTph16jm7Tsjbdgc/edit?usp=sharing
 
-Thời gian: 9h- tối thứ 6- 14/04 (nhớ cài reminder để nhớ nha mn huhu)
-
-
-Topic: Zoom 3 DOL's Personal Meeting Room
-
-Join Zoom Meeting
-
-https://us02web.zoom.us/j/3543646358?pwd=eS8vSzFLZkVmWGhsK2VJTEh2UmhFQT09
-
-Meeting ID: 354 364 6358
-
-Passcode: 633884
+Đọc đến phần: overview
+Coi video đến phần: type & outline
 
 * Outline cho agreee || disagree:
 
