@@ -22,7 +22,7 @@ Process:
 
 https://docs.google.com/document/d/1xgb9gh7BBKOW6xji9GbGk-qqqsZeTph16jm7Tsjbdgc/edit?usp=sharing
 
-Đọc đến phần: overview
+Đọc đến phần: sample answer 2
 Coi video đến phần: type & outline
 
 * Outline cho agreee || disagree:
