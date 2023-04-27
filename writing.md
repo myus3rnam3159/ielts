@@ -20,9 +20,8 @@ https://docs.google.com/document/d/1dCI9m4iqublciX5WEuLg1638QP2SXIYHQW9P6eP_olY/
 
 Process:
 
-https://docs.google.com/document/d/1xgb9gh7BBKOW6xji9GbGk-qqqsZeTph16jm7Tsjbdgc/edit?usp=sharing
+https://docs.google.com/document/d/17ZnSy54iYCI-p2cj7R2H9UIWjVqtNQC0Szp7CLeX_Nc/edit?usp=sharing
 
-Đọc đến phần: sample answer 3
 Coi video đến phần: type & outline
 
 * Outline cho agreee || disagree:
