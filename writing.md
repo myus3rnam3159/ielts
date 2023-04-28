@@ -40,6 +40,8 @@ https://photos.app.goo.gl/irbkm5uLYudDu2tr5
 
 https://photos.app.goo.gl/K6ZhsmiAKo3sjYX86
 
+https://docs.google.com/document/d/1DHVDOpDHTxI_6jPq8W_h6AoK4dDsmfwnWKe3r_ldj6E/edit?usp=sharing
+
 * Outline cho advantages and disadvantages: 
 
 https://photos.app.goo.gl/MtdEd8Am64M8zh3EA

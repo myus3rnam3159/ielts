@@ -1,0 +1,7 @@
+The given chart shows how many cars are made in three countries namely Thailand, Argentina and Australia from 2003 to 2009.
+
+Overall, from 2003 to 2009, while Argentina and Thailand witnessed an increase in the number of cars mananufactured, while Australia exprienced a decrease. Of these countries, Thailand consistenly remained the country with the highest car production during the given time span.
+
+In the first year, the highest number of cars made belonged to Thailand, with 784,770 units. This was followed by Australia, with a considerably lower statistic, of 430,658 vehicles. Bottom of the list was Argentina, at 145,930 cars.
+
+Thereafter, car production in Thailand made a significant growth to 1,119,283 in 2009, still ranking first. Likewise, the figure for Argentina rose sharply to 512,247 during the same period. Finally, a sharp decline to 212,647 was observed in Australia at the end of the 6-year time span, which is the lowest among the three countries.
