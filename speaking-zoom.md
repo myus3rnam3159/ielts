@@ -15,9 +15,15 @@ https://docs.google.com/document/d/13XA0VgnxD8KO8DKhlSUNqnFCXBhgq9aeKXNggF9vwB4/
 => trả lời câu hỏi
 
 
-Bài mẫu speaking: https://tuhocielts.dolenglish.vn/category/tong-hop-bai-mau-ielts-speaking-part-2-sample?page=3
+Bài mẫu speaking:
+
+Part 1
+https://tuhocielts.dolenglish.vn/category/tong-hop-bai-mau-ielts-speaking-part-2-sample?page=3
+
+Part 2
+https://tuhocielts.dolenglish.vn/category/tong-hop-bai-mau-ielts-speaking-part-3-sample?page=1
+
  
- Next: https://tuhocielts.dolenglish.vn/blog/describe-a-piece-of-important-news-you-got-through-a-text-message-bai-mau-sample-ielts-speaking-part-2
  
 docs5: https://docs.google.com/document/d/1_Jux4LIYrZd8G5Kkmqgk_GKFu_7Y5mO9Ex3VpqMtdEI/edit?usp=sharing
 
