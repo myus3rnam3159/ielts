@@ -20,6 +20,8 @@ Bài mẫu speaking:
 Part 1
 https://tuhocielts.dolenglish.vn/category/tong-hop-bai-mau-ielts-speaking-part-2-sample?page=3
 
+education p3
+
 Part 2
 https://tuhocielts.dolenglish.vn/category/tong-hop-bai-mau-ielts-speaking-part-3-sample?page=1
 
