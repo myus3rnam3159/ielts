@@ -1,5 +1,21 @@
-Thi thử ielts: https://www.idp.com/vietnam/ielts/computer-trial/?CountryId=227&utm_source=google&utm_medium=cpc&utm_campaign=VN_GG_S.SEM_X.12137364164_Y.114212342542_Z.625928109532&gclid=Cj0KCQjwla-hBhD7ARIsAM9tQKvRrPojnZtAwsgMZ7MS66-ycCveYVs1QquzwyoqsVdV1dX0jAsTPa4aAufZEALw_wcB
+Ielts general trên máy tính
 
+Tổng quát cấu trúc bài thi:
+
+https://www.youtube.com/watch?v=9ojYF3UF2MU&list=PLOOAq1Wa6vWXMk2XqS_-eBHFJ-WKch60E&index=6
+
+Quy trình thi writing:
+
+https://www.youtube.com/watch?v=Mrn35P-3a8I&list=PLOOAq1Wa6vWXMk2XqS_-eBHFJ-WKch60E&index=7
+
+
+Tiêu chí chấm điểm:
+
+https://www.idp.com/vietnam/ielts/test-format-and-benefits/
+
+Thi thử ielts: 
+
+https://www.idp.com/vietnam/ielts/computer-trial/
 
 
 *** SPEAKING ***
