@@ -24,6 +24,10 @@ Theo đề cương: https://www.ieltsbro.com/ (tìm hiểu kĩ thêm vì bằng 
 
 * May be 1 month
 
+* Ưu tiên làm skills trong file plan trước
+
+https://tuhocielts.dolenglish.vn/luyen-thi-ielts/ielts-online-test-luyen-tap-cambridge-ielts-17-test-1-reading
+
 1. Sáng:
 
 	a. LMS: 1 listening 1 speaking
@@ -33,6 +37,6 @@ Theo đề cương: https://www.ieltsbro.com/ (tìm hiểu kĩ thêm vì bằng 
 2. Chiều:
 
 	a. 1 all skill tests idp trên máy
-	b. 1 all skill vs ielts bro
+	b. 1 all skill vs ielts bro - làm trên gdocs
 	
 ** Nếu nặng quá thì cách ngày
