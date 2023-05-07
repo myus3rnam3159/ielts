@@ -2,6 +2,16 @@
 
 Describe person and place: https://docs.google.com/document/d/1ZRBEREK7N4VEWL4R6AfCNWDdm7RmIMkEzHZD_iWrN4g/edit?usp=sharing
 
+https://tuhocielts.dolenglish.vn/blog/describe-a-plan-in-your-life-that-is-not-related-to-work-or-study-bai-mau-sample-ielts-speaking-part-2
+
+*** Part 1 ***
+
+https://tuhocielts.dolenglish.vn/blog/homelessness-bai-mau-sample-ielts-speaking-part-1
+
+*** Part 3 ***
+
+https://tuhocielts.dolenglish.vn/blog/education-bai-mau-sample-ielts-speaking-part-3-phan-2
+
 *** SPEAKING ***
 
 Theo đề cương: https://www.ieltsbro.com/ (tìm hiểu kĩ thêm vì bằng tiếng Trung)
