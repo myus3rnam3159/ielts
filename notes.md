@@ -22,6 +22,8 @@ Theo đề cương: https://www.ieltsbro.com/ (tìm hiểu kĩ thêm vì bằng 
 
 *** PLAN ***
 
+https://docs.google.com/spreadsheets/d/1XMFXZPxt2ovIPl1_GHMCKZc0sPJI9n4-SPBH4PhaGJ0/edit?usp=drivesdk
+
 * May be 1 month
 
 * Ưu tiên làm skills trong file plan trước
