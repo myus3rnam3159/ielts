@@ -18,4 +18,5 @@ https://docs.google.com/spreadsheets/d/1JESGDxOEi6j7JmHJGkXwTMrKgo0XxzgkPlGIFLi4
 
 Days: 
 
-	1.
+	1. https://docs.google.com/document/d/1uJX_FXmxOcQvyTlFnABsNXsatFJlANDo1QrHWf1wH88/edit?usp=sharing
+
