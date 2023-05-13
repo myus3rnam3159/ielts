@@ -6,6 +6,10 @@
 
 *** Exercises ***
 
+accomodation:
+
+https://docs.google.com/document/d/1XVb0G7GwABEqmEYdyCj2O5l22mEv0cc7/edit
+
 idiomatic:
 
 https://docs.google.com/document/d/1PLKfJU-8ZX_O66X7k-NfAjbK-Re5LUtyZB3iXfypofQ/edit?usp=sharing
