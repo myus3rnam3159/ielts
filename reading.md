@@ -1,5 +1,7 @@
 *** READING ***
 
+* Chú ý: nên lướt qua các câu hỏi một lượt hoặc đọc xong một đoạn nếu phần này không có câu trả lời thì phần khác sẽ có nên có thể chuyển phần câu hỏi khi đọc xong một đoạn
+
 * Chú ý notion: https://crawling-place-724.notion.site/IELTS-Reading-with-Linearthinking-Strategies-by-DOL-English-4466124226974a4581d720a285f3f4ec
 
 * Bài tập reading trong notion
