@@ -1,4 +1,9 @@
+Practice: 
+
+https://tuhocielts.dolenglish.vn/blog/de-thi-ielts-writing-task-1-ngay-15-04-2023-kem-bai-mau-sample-tu-vung
+
 *** WRITING ***
+
 LÝ THUYẾT CHO LANGUAGE OF COMPARISION IN BOOK: PAGE
 
 141
@@ -28,6 +33,8 @@ Coi video đến phần: type & outline
 
 https://docs.google.com/document/d/1U1RxnlaMcaLyk0hSrdoHMRt9Rub5ICd-NNBTNyRy41Q/edit?usp=sharing 
 
+https://docs.google.com/document/d/1DHVDOpDHTxI_6jPq8W_h6AoK4dDsmfwnWKe3r_ldj6E/edit?usp=sharing
+
 * Outline tổng hợp: 
 
 https://docs.google.com/document/d/1zdfOxLv67PdmN-QM7dH6cdg-3xT_9UaXpe0eFYKBloM/edit?usp=sharing
@@ -40,7 +47,6 @@ https://photos.app.goo.gl/irbkm5uLYudDu2tr5
 
 https://photos.app.goo.gl/K6ZhsmiAKo3sjYX86
 
-https://docs.google.com/document/d/1DHVDOpDHTxI_6jPq8W_h6AoK4dDsmfwnWKe3r_ldj6E/edit?usp=sharing
 
 * Outline cho advantages and disadvantages: 
 
@@ -52,6 +58,7 @@ https://photos.app.goo.gl/YjHNf2kavF1XT33M8
 
 * Các cách connect sentences: 
 https://docs.google.com/document/d/1xkKnGQ3z-1cLoxCj9OEygRTpMdO_eSV_oJeAncQ57-w/edit?usp=sharing
+
 https://docs.google.com/document/d/1w_jj5UPvj8vbiKRiNXyzw18547NvtHMNTo2smVO9Dek/edit?usp=sharing
 
 * Chú ý 1: 
@@ -84,6 +91,10 @@ Phần này thì thực hành nhiều sẽ dần quen và chọn features ngày 
 ** outline + bt: 
 
 https://docs.google.com/document/d/1kkErFPhzIENvuIQrfq58eX5ByW8UzrPs/edit?usp=sharing&ouid=111134548910658747669&rtpof=true&sd=true
+
+** writing 2 compare:
+
+https://docs.google.com/document/d/1ROE4IlXrweshnssCD7W2NHbZo15Rm5hu25UJsmyJZK8/edit?usp=sharing
 
 ** Nối câu: https://photos.app.goo.gl/wdn796QDWAKozVMu7 
 

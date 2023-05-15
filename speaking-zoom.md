@@ -8,7 +8,7 @@
 
 accomodation:
 
-https://docs.google.com/document/d/1XVb0G7GwABEqmEYdyCj2O5l22mEv0cc7/edit
+https://docs.google.com/document/d/1stzzPkyTJjZa7p41hwmcpl6TVzp3dnLc/edit?usp=sharing&ouid=111134548910658747669&rtpof=true&sd=true
 
 idiomatic:
 
