@@ -1,6 +1,16 @@
-Practice: 
+* ielts bro:
 
-https://tuhocielts.dolenglish.vn/blog/de-thi-ielts-writing-task-1-ngay-15-04-2023-kem-bai-mau-sample-tu-vung
+https://ieltsbro.com/experience?type=3
+
+key forcast: 3 Done
+
+plan
+
+	day 6: 
+	
+		1. https://docs.google.com/document/d/1WBYQ8_-UkUgQ7x_H-bhbv-WWSQOxKgpQHLL7iWWv67M/edit?usp=sharing
+		
+		2. 
 
 *** WRITING ***
 

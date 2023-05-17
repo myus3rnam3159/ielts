@@ -4,9 +4,11 @@
 	
 	1. Work or study: 123456789 10 11  12 13 14 Done
 
-* Part 2
+* Part 2 & Part 3
 
-* Part 3
+Quest 12 Done
+
+Ielts pro p3: 1 Done
 
 *** Part 2 *** 
 
