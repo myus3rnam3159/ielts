@@ -10,7 +10,7 @@ plan
 	
 		1. https://docs.google.com/document/d/1WBYQ8_-UkUgQ7x_H-bhbv-WWSQOxKgpQHLL7iWWv67M/edit?usp=sharing
 		
-		2. 
+		2. https://docs.google.com/document/d/1temhnPfZpIXjRjCbuFq5QWHyhbbApLx0sfdtZXcPKso/edit?usp=sharing
 
 *** WRITING ***
 
