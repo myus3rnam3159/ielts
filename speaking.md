@@ -7,7 +7,8 @@
 
 * Part 2 & Part 3
 
-	1. Sport program: 123 Done
+	1. Sport program: 123456 Done
+	2. someone who help: 123 Done
 
 Quest 12 Done
 
