@@ -4,11 +4,13 @@
 	
 	1. Work or study: 123456789 10 11  12 13 14 Done
 	2. Sport: 1234567 Done
+	3. Health: 12345 Done
 
 * Part 2 & Part 3
 
 	1. Sport program: 123456 Done
-	2. someone who help: 123 Done
+	2. someone who help: 1234567 Done
+	3. Water spot: 12345 Done
 
 Quest 12 Done
 

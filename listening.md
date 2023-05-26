@@ -3,7 +3,7 @@
 Review:
 
 https://drive.google.com/drive/folders/1FwSmEe-iAofee0xme4eweFJCxV94mNzP?usp=share_link
-ssss
+
 Link nộp bài:
 
 https://drive.google.com/drive/folders/1L7dJWt8VoBVouu5rXeThZe5MI3dnbjLP?usp=share_link&fbclid=IwAR3tHDLbLedSVeL-yMChF8brAf1jS0lkkWlJyGkElfHapMf-QsoIwtQa0lk
@@ -20,5 +20,7 @@ https://docs.google.com/spreadsheets/d/1JESGDxOEi6j7JmHJGkXwTMrKgo0XxzgkPlGIFLi4
 
 Days: 
 
-	1. https://docs.google.com/document/d/1uJX_FXmxOcQvyTlFnABsNXsatFJlANDo1QrHWf1wH88/edit?usp=sharing - Done
+	0. https://docs.google.com/document/d/1uJX_FXmxOcQvyTlFnABsNXsatFJlANDo1QrHWf1wH88/edit?usp=sharing - Done
+	
+	1. Done
 
