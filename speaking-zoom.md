@@ -6,6 +6,10 @@
 
 *** Exercises ***
 
+relationship:
+
+https://docs.google.com/document/d/1fErBI3SYdTuiW4KPnYhsba4aoa1lyDlFvFLQTzD9MOE/edit?usp=sharing
+
 accomodation:
 
 https://docs.google.com/document/d/1stzzPkyTJjZa7p41hwmcpl6TVzp3dnLc/edit?usp=sharing&ouid=111134548910658747669&rtpof=true&sd=true
