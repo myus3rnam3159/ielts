@@ -5,12 +5,16 @@
 	1. Work or study: 123456789 10 11  12 13 14 Done
 	2. Sport: 1234567 Done
 	3. Health: 12345 Done
+	4. Music: 123456 Done
+	5. Library: 1234 Done
+	6. Keys:
 
 * Part 2 & Part 3
 
 	1. Sport program: 123456 Done
 	2. someone who help: 1234567 Done
 	3. Water spot: 12345 Done
+	4. 
 
 Quest 12 Done
 

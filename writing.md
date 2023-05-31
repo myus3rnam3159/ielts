@@ -19,7 +19,16 @@ plan
 		1. https://docs.google.com/document/d/1tkitnnbVYMeX69iULH9MhMjMymzaCeUAYnpEb59qP68/edit?usp=sharing
 		
 		2. https://docs.google.com/document/d/1WPv5OqNjx56-AIdPuh0AbGgyRPdzL6B6BQMRu1LEEvg/edit?usp=sharing
+		
+	day 10:social
 
+https://docs.google.com/document/d/1AVbhQZb7mJGtFI9Oje9Evt1LIU35xufwtKySivAlm-o/edit?usp=sharing
+
+	second key forecast: 1 Done
+	
+https://docs.google.com/document/d/1BkD-GiBa_vbqfW1zESZdOLBsudEwZZCVMwR6M_7jKQY/edit?usp=sharing
+	
+	
 *** WRITING ***
 
 LÝ THUYẾT CHO LANGUAGE OF COMPARISION IN BOOK: PAGE
