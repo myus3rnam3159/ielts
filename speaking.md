@@ -7,14 +7,14 @@
 	3. Health: 12345 Done
 	4. Music: 123456 Done
 	5. Library: 1234 Done
-	6. Keys:
+	6. Keys: 1234 Done
 
 * Part 2 & Part 3
 
 	1. Sport program: 123456 Done
 	2. someone who help: 1234567 Done
 	3. Water spot: 12345 Done
-	4. 
+	4. Get lost: p2 done p3 123456 done
 
 Quest 12 Done
 

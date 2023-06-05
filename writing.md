@@ -24,10 +24,24 @@ plan
 
 https://docs.google.com/document/d/1AVbhQZb7mJGtFI9Oje9Evt1LIU35xufwtKySivAlm-o/edit?usp=sharing
 
-	second key forecast: 1 Done
+	day 12:
+
+	maps: https://docs.google.com/document/d/1mDz0OEiZhhpq8LSQ6WXwPRoXHbjEjXF4f_g4UFqCuPY/edit?usp=sharing
+	
+	problem cause solutions:
+https://docs.google.com/document/d/1pkVhELaAzf7MUH0yRMBnrHR1wm7t2hB2U396-q8hnJI/edit?usp=sharing
+
+	second key forecast: 123 Done
 	
 https://docs.google.com/document/d/1BkD-GiBa_vbqfW1zESZdOLBsudEwZZCVMwR6M_7jKQY/edit?usp=sharing
 	
+Đề task 2 mới:
+
+https://docs.google.com/spreadsheets/d/1hq4UWgtcaCmTr_XG4rCD0XJdIWNsVbTkwK4WjEbuFWA/edit#gid=1699628501
+
+Đề task 1 mới:
+
+https://drive.google.com/drive/folders/1KKe6C2sI_bqhmcH5o7fJWCJrsKlZ_lhu
 	
 *** WRITING ***
 
