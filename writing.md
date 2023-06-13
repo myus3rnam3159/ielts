@@ -34,7 +34,20 @@ https://docs.google.com/document/d/1pkVhELaAzf7MUH0yRMBnrHR1wm7t2hB2U396-q8hnJI/
 	second key forecast: 123 Done
 	
 https://docs.google.com/document/d/1BkD-GiBa_vbqfW1zESZdOLBsudEwZZCVMwR6M_7jKQY/edit?usp=sharing
+
+	Day 15: 
+
+		Task 1: https://docs.google.com/document/d/1cetG5jq4aTuDY2wDXFWqbVL649CMiBKl1tqD37hbmHc/edit?usp=sharing
+		
+		Task 2: https://docs.google.com/document/d/1ueCKEUjHY7P8R9x27jF9p0zKI3eckRs0nnm9ooWHsl8/edit?usp=sharing
 	
+	Day 18:
+		Task 1: https://docs.google.com/document/d/1F-Gf7ZndkQNch6bVAdPVkAbC1kso1eVaxm1HvBsVWzY/edit?usp=sharing	
+	
+		Task 2: https://docs.google.com/document/d/1DHxMDKduHeo5oHyYUl-kJQwYy1zW3zFlDWv2f7thkxU/edit?usp=sharing
+	
+
+
 Đề task 2 mới:
 
 https://docs.google.com/spreadsheets/d/1hq4UWgtcaCmTr_XG4rCD0XJdIWNsVbTkwK4WjEbuFWA/edit#gid=1699628501

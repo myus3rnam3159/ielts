@@ -8,6 +8,11 @@
 	4. Music: 123456 Done
 	5. Library: 1234 Done
 	6. Keys: 1234 Done
+	7. Jewelry: All Done
+	8. Happy things: 12345 Done.
+	9. Chocolate: p1: 123456 Done.
+	10. The city you live in: Done all
+	
 
 * Part 2 & Part 3
 
@@ -15,6 +20,7 @@
 	2. someone who help: 1234567 Done
 	3. Water spot: 12345 Done
 	4. Get lost: p2 done p3 123456 done
+	5. aquaintance: 
 
 Quest 12 Done
 
